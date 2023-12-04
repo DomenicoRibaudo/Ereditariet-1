@@ -1,1 +1,1 @@
-# Ereditariet-1
+# Ereditarieta-1
